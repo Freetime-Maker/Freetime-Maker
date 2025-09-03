@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-## This is [@FreetimeMaker(https://github.com/FreetimeMaker)] his second Account
+🔭 This is FreetimeMaker so this is my Second Account. Visit [My own Website](https://FreetimeMaker.github.io/)
